@@ -1,44 +1,17 @@
 
-<!doctype html>
-<html>
-<head>
-    <meta charset="utf-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1.0, minimum-scale=1.0, maximum-scale=1.0,user-scalable=no">
-    <title>91找妹妹-全国楼凤小姐兼职信息！永久发布页</title>
-    <meta name="keywords" content="楼凤，兼职，良家，桑拿，洗浴，按摩，会所，高端外围，凤楼阁论坛，全国楼凤，论坛">
-    <meta name="description" content="全国各地楼凤，兼职，良家，桑拿，洗浴，按摩，会所，高端外围及体验感受的详细性息介绍">
-     <meta name="google-site-verification" content="ESwLYFGvbRWtQDqPNLJuO3v9padULg9067nz9fAv2Go" />
-    <meta name="author" content="91找妹妹">
-    <link rel="icon" href="/favicon.ico">
- 
-</head>
-<body style="text-align: center">
-    <div class="box">
-        <div class="box__description">
-            <div class="box__description-container">
-		     <h2>请务必收藏我们Github的防封地址：</h2>
-                <ul>
-                    <br>
-                        <a href="https://91zmm.github.io">
-                            https://91zmm.github.io
-                        </a>
-                        <small><time>  牢记(可截图保存)</time></small>
+     91找妹妹-全国楼凤小姐兼职信息！永久发布页
+     全国各地楼凤，兼职，良家，桑拿，洗浴，按摩，会所，高端外围及体验感受的详细性息介绍
+
+     请务必收藏我们Github的防封地址：
+
+     https://91zmm.github.io
                    
-                </ul>
-                <h1 class="box__description-title">91找妹妹最新网址和域名</h1>
-                <h3 class="box__description-text">最近域名被封,点击以下备用地址</h3>
-              <ul>
-		        	<br>
-                        <a href="https://91zmm.xyz">
-                            https://91zmm.xyz 
-                        </a>
-                        <small><time> → 最新</time></small>
-              </ul>
-               
-		     <div class="box__description-text">如遇浏览器拦截无法访问，<br>安卓用户可下载谷歌或火狐浏览器访问！苹果用户可用手机自带浏览器访问！
-			     <br>如果还无法访问，切换下网络数据，移动，联通电信切换下网络试试！关闭杀毒软件！！！</div>
-            </div>
-        </div>
-    </div>
-</body>
-</html>
+     91找妹妹最新网址和域名
+
+     最近域名被封,点击以下备用地址
+
+     https://91zmm.xyz   → 最新地址
+
+     如遇浏览器拦截无法访问，安卓用户可下载谷歌或火狐浏览器访问！苹果用户可用手机自带浏览器访问！
+
+     如果还无法访问，切换下网络数据，移动，联通电信切换下网络试试！关闭杀毒软件！！！
